@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Jessica Arantes
+# 👩🏻‍💻 Jessica Arante
 
 **`Analista de Dados em formação 🔧`**
 
